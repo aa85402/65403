@@ -19,4 +19,4 @@
 
 选择我们，就是选择真正高效、安全、清爽的“日本AV免费”看片体验，赶快收藏，天天看新番！
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/aa85402/65403 ）</span>
